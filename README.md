@@ -1,1 +1,1 @@
-"Piracy doesn't hurt an artist unless the artist puts out a bad album." -- Eminem
+"Information should not be hoarded. Information should be spread. It should be free." — Aaron Swartz
